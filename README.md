@@ -4,5 +4,5 @@
 
 # Problem
 
-We're are more physically isolated than ever.
+We're are all in the midst of a once in generation event. 
 
